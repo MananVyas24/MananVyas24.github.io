@@ -1,2 +1,2 @@
-# MananVyas24.github.io
+# MananVyas.github.io
 Personal link
